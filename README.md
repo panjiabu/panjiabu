@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 - 🌏  Languages  : Native Indonesian & Sundanese speaker and little bit English (but i'm pretty confident with it ✌)
 - ❤️  Favorite   : 🍟Potatoes, ☕Coffee-Milk, ✏️Drawing, 💻Anime & 🤘J-Metal Music
 
-![gif_anime](http://media.tenor.com/images/c072851805335bc580d92d24fb22ad65/tenor.gif)
+![gif_anime](http://media.tenor.com/images/8edc99cfb2e1b7f29c074e44e8361719/tenor.gif)
 
 <details>
 <summary><b>Activity 💻</b></summary>
